@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Bachelor of Autonomous Vehicle Engineering**
 
-- 📫 How to reach me **bhaztikz2002@gmail.com**
+- 📫 How to reach me **bhautikz2002@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
